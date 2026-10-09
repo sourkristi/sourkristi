@@ -1,4 +1,4 @@
-## ❄️ sourkristi
+## ★ sourkristi
 
 **`Computer Science student`**
 
